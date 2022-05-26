@@ -6,6 +6,6 @@
 - 💞️ I’m looking to collaborate on ...
 - Nothing
 - 📫 How to reach me ...
-- Discord: MelonShark#5291
+- Discord: xZyn#5291
 
 -- Thx For reading --
